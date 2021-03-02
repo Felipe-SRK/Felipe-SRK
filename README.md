@@ -1,4 +1,4 @@
-<img width="auto" src="https://github.com/Felipe-SRK/Felipe-SRK/blob/main/NLW04_pack_divulgacao_-_Github.png">
+<img width="720px" src="https://github.com/Felipe-SRK/Felipe-SRK/blob/main/marvin-meyer-SYTO3xs06fU-unsplash.jpg">
 
 # Felipe Silva
 
