@@ -1,4 +1,4 @@
-<img width="auto" src="https://github.com/Felipe-SRK/Felipe-SRK/blob/main/1614116674488.jpg">
+<img width="auto" src="https://github.com/Felipe-SRK/Felipe-SRK/blob/main/55_email_signature.png">
 
 # Felipe Silva Reis
 
